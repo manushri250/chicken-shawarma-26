@@ -1,1 +1,1 @@
-# chicken-shawarma-26
+One of my all-time favorite dish which I always wanted to learn and try it out in real time is Chicken Shawarma with tahini sauce and lazy salad. I will share you this superb fragrant recipe, enjoy the quarantine with the essense of cuisine. I’ve found an easy way to make it at home with the same authentic flavors. This Chicken Shawarma recipe is going to knock your socks off! Handful of everyday spices makes an incredible Chicken Shawarma marinade that infuses the chicken with exotic Middle Eastern flavors.
